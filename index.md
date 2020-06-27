@@ -1,3 +1,4 @@
+
 # Das Licht 
 
 Es war einmal hgt3 oder auch nicht
@@ -23,4 +24,5 @@ Ich mache mir so meine gedanken ueber die Schwingung in der Welt die gerade jetz
 * Wahrhaftig 
 
 * Gewaltlos
+
 
