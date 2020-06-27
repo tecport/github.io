@@ -29,3 +29,4 @@ Ich mache mir so meine gedanken ueber die Schwingung in der Welt die gerade jetz
 
 > Fuerchte Dich nicht auch wenn die Dunkelheit Dich umgibt
 > Du bist das Licht das Sie so liebt.
+
