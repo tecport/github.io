@@ -24,9 +24,14 @@ Ich mache mir so meine gedanken ueber die Schwingung in der Welt die gerade jetz
 * Wahrhaftig 
 
 * Gewaltlos
+*  r2de
 
   Zitat vom Lichtengel 
 
 > Fuerchte Dich nicht auch wenn die Dunkelheit Dich umgibt
-> Du bist das Licht das Sie so liebt.
+> Du bist das Licht das Sie so liebt. j3nga
 
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/f/f7/Le_Grand_Saint_Michel%2C_by_Raffaello_Sanzio%2C_from_C2RMF_retouched.jpg/220px-Le_Grand_Saint_Michel%2C_by_Raffaello_Sanzio%2C_from_C2RMF_retouched.jpg"> 
+
+ 
