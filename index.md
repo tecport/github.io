@@ -1,4 +1,4 @@
-
+﻿
 # Das Licht 
 
 Es war einmal hgt3 oder auch nicht
@@ -25,4 +25,7 @@ Ich mache mir so meine gedanken ueber die Schwingung in der Welt die gerade jetz
 
 * Gewaltlos
 
+  Zitat vom Lichtengel 
 
+> Fuerchte Dich nicht auch wenn die Dunkelheit Dich umgibt
+> Du bist das Licht das Sie so liebt.
